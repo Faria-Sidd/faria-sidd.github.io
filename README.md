@@ -23,7 +23,7 @@ Hello, I am Faria Siddique, a Digital Marketer from dojoit.com, an [online white
 
 # The Benefits of an Online Education
 
-[The Benefits of an Online Education](https://blogger.googleusercontent.com/img/a/AVvXsEi_oDH6PSXSdJ_ebvf3R8BGEWrr0NkXFuoqCSser4m0yM_h5KYioBxJ-jQrKNRznmWg3VQ66wGrXdonBrD0DuUan-2N9bluGTbta44CEeLIc-LIT2vkycguLywH9hZZAjRLI9cRrG9zN4GrWrr0PY3bp9_kxgcvQHICWyiOBBQ3GzuchQ8BeuDUJQJU=w640-h428)
+![The Benefits of an Online Education](https://blogger.googleusercontent.com/img/a/AVvXsEi_oDH6PSXSdJ_ebvf3R8BGEWrr0NkXFuoqCSser4m0yM_h5KYioBxJ-jQrKNRznmWg3VQ66wGrXdonBrD0DuUan-2N9bluGTbta44CEeLIc-LIT2vkycguLywH9hZZAjRLI9cRrG9zN4GrWrr0PY3bp9_kxgcvQHICWyiOBBQ3GzuchQ8BeuDUJQJU=w640-h428)
 
 Truly we live in a quick-paced, quick-acting world. The technology that we live with every day, the things that our children could not imagine life without, are things that were written about in science fiction books when we were kids. Very few things have not kept up with the changes, but one that has sadly fallen behind is educational tools. For the most part, schools today are still driven by the textbook, which takes thousands of dollars to update and costs schools significant portions of their operating costs, but they are out of date within months of printing. However, with the rising availability of online media and online data, we find the alternative to the textbook - online education.
 
@@ -47,7 +47,7 @@ Hello, I am Faria Siddique, a Digital Marketer from dojoit.com, an [online white
 
 # Online Education is Very Important
 
-[Online Education is Very Important](https://blogger.googleusercontent.com/img/a/AVvXsEhKU5y3HdHj9aaYA6TR2JceII1Y0py6xn4Frv_pSV3isQXTENgYopOvtj59GXUzK_spz4HjfG313yvWfFdhx_TL6J_BENuB8k4YkibmiSA8WjtoWsV2TXI3RMWRN5tUwDAmu-PPWjBDdpw0xPWhJli4csTROQTKChmOvapsXUB8-hrSyqVLYFpPkZyQ=w640-h426)
+![Online Education is Very Important](https://blogger.googleusercontent.com/img/a/AVvXsEhKU5y3HdHj9aaYA6TR2JceII1Y0py6xn4Frv_pSV3isQXTENgYopOvtj59GXUzK_spz4HjfG313yvWfFdhx_TL6J_BENuB8k4YkibmiSA8WjtoWsV2TXI3RMWRN5tUwDAmu-PPWjBDdpw0xPWhJli4csTROQTKChmOvapsXUB8-hrSyqVLYFpPkZyQ=w640-h426)
 
 The impact of education on human society is immense, once a person is educated he is in the proper sense. When a man is educated, he becomes rational and it trains the human mind to make the right decisions. An uneducated person cannot read or write and that is why he is closed to all information and knowledge. It is through education that information and knowledge are received and spread around the world.
 
@@ -72,7 +72,7 @@ Hello, I am Faria Siddique, a Digital Marketer from dojoit.com, an [online white
 
 # Online Education
 
-[Online Education](https://blogger.googleusercontent.com/img/a/AVvXsEj5evR1yKLnHd6A8dae5ncPgSrf6d7WvwUDHtkeoG2Spq3PjEGjeRmPiN4SL3QQ_DcNJe55k3YahirOpbtck60LxMUmlBQQ_JEbcTFidGH5tsgQypkqQJsw3SNHT3M_yHSDU9Iai4dnYPkM1hkBcNkUR4B5ywhD-zug50RN6g6Vwtl9zyd5fQJpvz5L=w640-h428)
+![Online Education](https://blogger.googleusercontent.com/img/a/AVvXsEj5evR1yKLnHd6A8dae5ncPgSrf6d7WvwUDHtkeoG2Spq3PjEGjeRmPiN4SL3QQ_DcNJe55k3YahirOpbtck60LxMUmlBQQ_JEbcTFidGH5tsgQypkqQJsw3SNHT3M_yHSDU9Iai4dnYPkM1hkBcNkUR4B5ywhD-zug50RN6g6Vwtl9zyd5fQJpvz5L=w640-h428)
 
 Online education is based on the Internet or other Web-based methods. With the advent of this huge revolution known as Web 2.0, online education has become the order of the day. So, in a way, online education can also be called the new wave of learning and can be termed as a part of Education 2.0. It makes use of the World Wide Web, where teachers and students exchange text, pictures, audio, and video. File sharing and communications tools like email, chats, and audio and video conferencing are integral to this mode of education. Online education has made a big splash in the web world. Within the past decade, online MBA education has provided millions of people with a new incentive to learn.
 
@@ -98,7 +98,7 @@ Hello, I am Faria Siddique, a Digital Marketer from dojoit.com, an [online white
 
 # Is Online Education Suitable For You?
 
-[Is Online Education Suitable For You?](https://blogger.googleusercontent.com/img/a/AVvXsEhRCb95AYJbn0bbid_XkljOlifDrHOw3VrQlOBkNTm1RrLxeYOT2StU0FB3SCKlLaSoaxKQGA5ue-INumMB1ZS9uaMV06pAd4UXj8JyFxnrg8LhUL3xGTb_xlpOxvYBkpxbDDxdgW1pFQdxDAS0GDQw2Qk5NzyKrNJJxtu9zTCGs6hPtMeGqar5Vnq9=w640-h426)
+![Is Online Education Suitable For You?](https://blogger.googleusercontent.com/img/a/AVvXsEhRCb95AYJbn0bbid_XkljOlifDrHOw3VrQlOBkNTm1RrLxeYOT2StU0FB3SCKlLaSoaxKQGA5ue-INumMB1ZS9uaMV06pAd4UXj8JyFxnrg8LhUL3xGTb_xlpOxvYBkpxbDDxdgW1pFQdxDAS0GDQw2Qk5NzyKrNJJxtu9zTCGs6hPtMeGqar5Vnq9=w640-h426)
 
 Online education gives students not only convenience but also freedom and it comes with a lower price. Although this form of education sounds fun, not everyone prefers this mode of study. Since the situation is as such, it is best to write down the pros and cons of this education system. Then, look at your list to see which you prefer, traditional education or online education.
 
