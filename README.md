@@ -1,6 +1,6 @@
 # The Growing Popularity Of Online Education
 
-[The Growing Popularity Of Online Education](https://blogger.googleusercontent.com/img/a/AVvXsEiBVTh_8AQY5TOwwzOVWQvHlSgQzwhvtAaFZfsBh3-JCHwAHXSyMuP4eQlfh2DmhZVqcmkVi_sb8dD2IQMkYMiswbzyc33R9sFPn4hl_NfAyLu50JwIvXcJJ5RmtSS5N2liNg6kqSjP7MruRlw7WsfJxyh29KbzFyE4RTaKiDrMjFza5VgKJhoLePtI=w640-h428)
+![The Growing Popularity Of Online Education](https://blogger.googleusercontent.com/img/a/AVvXsEiBVTh_8AQY5TOwwzOVWQvHlSgQzwhvtAaFZfsBh3-JCHwAHXSyMuP4eQlfh2DmhZVqcmkVi_sb8dD2IQMkYMiswbzyc33R9sFPn4hl_NfAyLu50JwIvXcJJ5RmtSS5N2liNg6kqSjP7MruRlw7WsfJxyh29KbzFyE4RTaKiDrMjFza5VgKJhoLePtI=w640-h428)
 
 Education is a lifelong process. It never ends, and the more one studies, the more likely is for him to grow intellectually and at the same time, professionally. However, job responsibilities and family engagements generally cut short one's education journey. It is often seen that once a person gets into a particular job and field, he becomes quite complacent about his situation, not realizing that his current skills and qualifications are only going to help him reach a particular level and not beyond. In order to rise in his chosen field and industry, he must continuously supplement his skills with fresh education. The advent of internet technology has done wonders for the education industry. It has helped erase time limitations and position boundaries and made quality education available for all at the simple click of a button.
 
